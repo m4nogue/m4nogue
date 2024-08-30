@@ -27,8 +27,7 @@
 
 → [𝗱𝗻𝗶 𝗹𝗶𝘀𝘁](https://github.com/m4nogue/dni-list-) ᶻ 𝗓 𐰁 .ᐟ
 
-→ [𝗹𝗶𝗸𝗲𝘀 ♡ ˎˊ˗](https://github.com/m4nogue/likes)
+→ [𝗹𝗶𝗸𝗲𝘀](https://github.com/m4nogue/likes)  ♡ ˎˊ˗
 
-→ [𝗱𝗶𝘀𝗹𝗶𝗸𝗲𝘀 :(] 
-
+→ [𝗱𝗶𝘀𝗹𝗶𝗸𝗲𝘀] ( ) ˙◠˙
 ![image](https://github.com/user-attachments/assets/5657aa9f-d2e0-42d0-84b9-570fb5726138)
