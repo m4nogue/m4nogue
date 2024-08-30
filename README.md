@@ -29,5 +29,6 @@
 
 → [𝗹𝗶𝗸𝗲𝘀](https://github.com/m4nogue/likes)  ♡ ˎˊ˗
 
-→ [𝗱𝗶𝘀𝗹𝗶𝗸𝗲𝘀] ( ) ˙◠˙
+→ [𝗱𝗶𝘀𝗹𝗶𝗸𝗲𝘀](https://github.com/m4nogue/dislikes) ˙◠˙
+
 ![image](https://github.com/user-attachments/assets/5657aa9f-d2e0-42d0-84b9-570fb5726138)
