@@ -17,7 +17,7 @@
 
 ૮₍˶ •. • ⑅₎ა 𝙨𝙤𝙘𝙞𝙖𝙡𝙨 & 𝙢𝙤𝙧𝙚 !
 
-🌈 [𝐫𝐨𝐛𝐥𝐨𝐱 !](https://www.roblox.com/users/2795609521/profile) ✧.  ⠀ ⠀ ⠀    ↳ [𝐢𝐧𝐬𝐭𝐚𝐠𝐫𝐚𝐦]([https://www.instagram.com/m4nogue/](https://www.instagram.com/kerenjungerrr/) 🧸°. ♡  ⠀ ⠀ ⠀    ♡; [𝐩𝐢𝐧𝐭𝐞𝐫𝐞𝐬𝐭](https://za.pinterest.com/cynslvr/)🦎  ⠀ ⠀ ⠀    ⭐┊ [𝐭𝐮𝐦𝐛𝐥𝐫](https://www.tumblr.com/blog/m4nogue) ✧ :-  ⠀ ⠀ ⠀    ⪩⪨ [𝐜.𝐚𝐢 !](https://character.ai/profile/cynslvr)🍭
+🌈 [𝐫𝐨𝐛𝐥𝐨𝐱 !](https://www.roblox.com/users/2795609521/profile) ✧.  ⠀ ⠀ ⠀    ↳ [𝐢𝐧𝐬𝐭𝐚𝐠𝐫𝐚𝐦](https://www.instagram.com/kerenjungerrr/) 🧸°. ♡  ⠀ ⠀ ⠀    ♡; [𝐩𝐢𝐧𝐭𝐞𝐫𝐞𝐬𝐭](https://za.pinterest.com/cynslvr/)🦎  ⠀ ⠀ ⠀    ⭐┊ [𝐭𝐮𝐦𝐛𝐥𝐫](https://www.tumblr.com/blog/m4nogue) ✧ :-  ⠀ ⠀ ⠀    ⪩⪨ [𝐜.𝐚𝐢 !](https://character.ai/profile/cynslvr)🍭
 
 
 ![image](https://github.com/user-attachments/assets/a77afb35-6def-4fb6-a727-587cfd510b6c)
