@@ -6,9 +6,8 @@
 
 
 ⠀୨୧﹒🦕 she/her ! ﹐
-⠀ ⠀ ⠀ ⠀﹒୭ dc: m4nogue ﹒➷ 
- ⠀ ⠀ ⠀⠀ ⚠ asd .〞♰  join my discord [serv](https://discord.gg/jX8AyDS7)
-
+⠀ ⠀ ⠀ ⠀﹒୭ join my discord [serv](https://discord.gg/jX8AyDS7) ﹒➷ 
+ ⠀ ⠀ ⠀⠀ ⚠ asd .〞♰  
 ૮ ᴖﻌᴖა₎  loveee! kylie minogue ♡₊ 🌷
 
 
