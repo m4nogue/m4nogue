@@ -6,7 +6,7 @@
 
 
 ⠀୨୧﹒🦕 she/her ! ﹐
-⠀ ⠀ ⠀ ⠀﹒୭ join my discord [serv]((https://discord.gg/xPs6MMqSYC)) ﹒➷ 
+⠀ ⠀ ⠀ ⠀﹒୭ join my discord [serv](https://discord.gg/xPs6MMqSYC) ﹒➷ 
  ⠀ ⠀ ⠀⠀ ⚠ asd .〞♰  
 ૮ ᴖﻌᴖა₎  loveee! kylie minogue ♡₊ 🌷
 
